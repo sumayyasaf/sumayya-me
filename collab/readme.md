@@ -1,4 +1,5 @@
-HI THIS IS A COLLAB!!!!! ITS ME AND MARTINE  
+HI THIS IS A COLLAB!!!!! ITS ME AND KATHRINE     
+
 welcome to the Dci  
 
                     NAME OF THE PROJECT - TASK MANAGMENT APP
